@@ -1,1 +1,9 @@
-# profile
+# GPA REPORT
+
+
+# FIRST SEMESTER
+
+- 23 CREDITS ACHIVED
+
+
+- 4.34/4.5 (= 4.0/4.0)
